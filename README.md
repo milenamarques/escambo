@@ -1,3 +1,3 @@
 # Escambo
-# Gabriel,
-#
+# Gabriel-kun =]
+# Camilla-chan :*
