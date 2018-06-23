@@ -1,3 +1,4 @@
-# Escambo
-# Gabriel,
-#
+# Escambo-sama
+
+# .Gabriel-kun =]
+# .Camilla-chan :*
