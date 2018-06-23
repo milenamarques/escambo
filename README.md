@@ -1,3 +1,3 @@
-# escambo
+# Escambo
 # Gabriel,
 #
