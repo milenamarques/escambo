@@ -18,3 +18,6 @@ principalmente  eletrônicos, realizando a
 troca  com outras pessoas que estão
 interessadas.
 
+obs.: outras informações serão adicionadas com o tempo.
+consute o Escambo.pdf.
+Você é livre para fazer qualquer contribuição. 
